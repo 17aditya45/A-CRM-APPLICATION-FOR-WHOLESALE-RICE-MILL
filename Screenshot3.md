@@ -1,0 +1,1 @@
+![Screenshot 2024-06-30 133237](https://github.com/17aditya45/A-CRM-APPLICATION-FOR-WHOLESALE-RICE-MILL/assets/124552252/6aa60602-d462-4a9f-a90b-8e258910edd5)
